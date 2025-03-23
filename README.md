@@ -8,5 +8,4 @@ The rapidly increasing amount of orbital debris currently in our atmosphere is u
 **Contact:**
 Parker Breman 
 *jnbreman@hawaii.edu*
-*(808) 463-8693*
 
